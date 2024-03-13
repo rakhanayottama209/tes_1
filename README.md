@@ -1,1 +1,1 @@
-main2 isian
+Ini dari windows
